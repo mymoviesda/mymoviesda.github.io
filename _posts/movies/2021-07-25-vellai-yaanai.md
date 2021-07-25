@@ -1,8 +1,8 @@
 ---
 date: 2021-07-25 18:08:44
 layout: movie
-title: Vellai Yaanai
-seotitle: Vellai Yaanai (2021) Tamil Movie Download TamilRockers HD Moviesda
+title: Vellai Yaanai (2021) Tamil Movie Download TamilRockers HD Moviesda
+seotitle: Vellai Yaanai
 poster: https://image.tmdb.org/t/p/w185/14wosuKKqWSJ30ftANHWJGUyZsL.jpg
 size: 400 MB
 year: "2021"
