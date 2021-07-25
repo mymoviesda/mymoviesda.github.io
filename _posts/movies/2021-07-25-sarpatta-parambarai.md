@@ -1,8 +1,8 @@
 ---
 date: 2021-07-25 18:07:29
 layout: movie
-title: Sarpatta Parambarai
-seotitle: Sarpatta Parambarai (2021) Tamil Movie Download TamilRockers HD Moviesda
+title: Sarpatta Parambarai (2021) Tamil Movie Download TamilRockers HD Moviesda
+seotitle: Sarpatta Parambarai
 poster: https://image.tmdb.org/t/p/w185/yEfq4BN2AzSrH1slW0AReu44HWE.jpg
 size: 400 MB
 year: "2021"
