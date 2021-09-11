@@ -5,7 +5,7 @@ date: 2021-08-29T06:20:11+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=269
-postid: /?p=269
+post id: /bhuj-the-pride-of-india-full-movie-download-filmywap-2021/
 cyberseo_rss_source:
   - 'https://www.isaiminitamilrockers.live/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

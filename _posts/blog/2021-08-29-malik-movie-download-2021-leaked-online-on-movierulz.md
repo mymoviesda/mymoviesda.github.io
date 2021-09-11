@@ -5,7 +5,7 @@ date: 2021-08-29T06:20:31+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=307
-postid: /?p=307
+post id: /malik-movie-download-2021-leaked-online-on-movierulz/
 cyberseo_rss_source:
   - 'https://www.isaiminitamilrockers.live/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

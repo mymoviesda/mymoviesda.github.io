@@ -5,7 +5,7 @@ date: 2021-08-29T06:10:38+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=20
-postid: /?p=20
+post id: /eeswaran-2021-tamil-full-movie-download-hd/
 cyberseo_rss_source:
   - 'https://dubhoodtamil.blogspot.com/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

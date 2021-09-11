@@ -5,7 +5,7 @@ date: 2021-08-29T06:23:44+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=408
-postid: /?p=408
+post id: /the-family-man-season-2-download-in-full-hd-isaimini/
 cyberseo_rss_source:
   - 'https://www.isaiminitamilrockers.live/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

@@ -5,7 +5,7 @@ date: 2021-08-29T06:23:58+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=436
-postid: /?p=436
+post id: /saina-full-movie-download-leaked-tamilrockers-isaiminitamilrockers-2021/
 cyberseo_rss_source:
   - 'https://www.isaiminitamilrockers.live/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

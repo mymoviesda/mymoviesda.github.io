@@ -5,7 +5,7 @@ date: 2021-08-29T06:20:26+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=297
-postid: /?p=297
+post id: /sarpatta-parambarai-full-movie-download-isaimini-tamilrockers/
 cyberseo_rss_source:
   - 'https://www.isaiminitamilrockers.live/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

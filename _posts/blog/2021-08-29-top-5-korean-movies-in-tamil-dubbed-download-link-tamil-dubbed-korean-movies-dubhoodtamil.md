@@ -5,7 +5,7 @@ date: 2021-08-29T06:10:39+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=22
-postid: /?p=22
+post id: /top-5-korean-movies-in-tamil-dubbed-download-link-tamil-dubbed-korean-movies-dubhoodtamil/
 cyberseo_rss_source:
   - 'https://dubhoodtamil.blogspot.com/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

@@ -5,7 +5,7 @@ date: 2021-08-29T06:10:51+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=43
-postid: /?p=43
+post id: /the-amityville-horror-2005-tamil-dubbed-hd/
 cyberseo_rss_source:
   - 'https://dubhoodtamil.blogspot.com/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

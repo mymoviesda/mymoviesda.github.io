@@ -5,7 +5,7 @@ date: 2021-08-29T06:23:51+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=422
-postid: /?p=422
+post id: /vanakkam-da-mappilei-full-movie-download-tamilrockers/
 cyberseo_rss_source:
   - 'https://www.isaiminitamilrockers.live/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:

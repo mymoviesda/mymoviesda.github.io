@@ -5,7 +5,7 @@ date: 2021-08-29T06:20:16+00:00
 author: tentrockers
 layout: post
 guid: https://tentrockers.online/?p=278
-postid: /?p=278
+post id: /navarasa-full-web-series-download-480p-720p-1080p-leaked-by-tamilrockers-filmyzilla-tamilyogi-tamilgun-movierulz/
 cyberseo_rss_source:
   - 'https://www.isaiminitamilrockers.live/feeds/posts/default?max-results=150&start-index=1'
 cyberseo_post_link:
